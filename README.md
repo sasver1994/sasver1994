@@ -1,4 +1,4 @@
-![JavaScript Banner](https://miro.medium.com/max/1200/1*86RzbL3dbBwU1Qd9lHBAxg.png)
+![JavaScript Banner](https://www.mwanmobile.com/wp-content/uploads/2022/09/image-7.png)
 
 # Hello! I'm Saber Esmaeilpour 👋
 
